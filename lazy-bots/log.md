@@ -14,3 +14,4 @@
 2026-11-14: MemeDrops daily drop (penguin "dramatic goodbye" meme): See You In 5 Minutes Penguin Tee, Dramatic Goodbyes Are My Cardio Mug, Miss You Already Penguin Sticker. Printful-linked with mockups and published to joystache.shop at 09:41 SAST.
 2026-11-15 — Daily Meme drop: "Sleepy Office Monkey" meme — made 3 AI-assisted designs (Life Lately Sleepy Monkey Tee, Barely Monkeying Around Mug, 5 More Minutes Monkey Sticker), Printful-linked with free mockups, published live on joystache.shop at 09:47 SAST.
 - 2026-11-16: Daily Meme drop "Broke cat" (empty-wallet cat meme): Pawsitively Broke Cat Tee, Running On Coffee & $0.00 Mug, Broke But Cute Cat Sticker. Published to joystache.shop at 10:03 Africa/Johannesburg.
+2026-11-17: I Got So Mad frog drop — tee, mug, sticker (Printful-linked, mockups first) published to joystache.shop at 09:50 Africa/Johannesburg.
