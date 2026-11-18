@@ -15,3 +15,4 @@
 2026-11-15 — Daily Meme drop: "Sleepy Office Monkey" meme — made 3 AI-assisted designs (Life Lately Sleepy Monkey Tee, Barely Monkeying Around Mug, 5 More Minutes Monkey Sticker), Printful-linked with free mockups, published live on joystache.shop at 09:47 SAST.
 - 2026-11-16: Daily Meme drop "Broke cat" (empty-wallet cat meme): Pawsitively Broke Cat Tee, Running On Coffee & $0.00 Mug, Broke But Cute Cat Sticker. Published to joystache.shop at 10:03 Africa/Johannesburg.
 2026-11-17: I Got So Mad frog drop — tee, mug, sticker (Printful-linked, mockups first) published to joystache.shop at 09:50 Africa/Johannesburg.
+2026-11-18 | MemeDrops daily drop "Bottom Goat" (goat tower meme) | Somebody Has To Be The Bottom Goat Tee ($24), Carrying The Whole Team Goat Mug ($19.99), Bottom Goat Energy Sticker ($4.99) | designs made in Canva, Printful-linked with free mockups | published live on joystache.shop 09:50 SAST (sticker 09:59 SAST)
